@@ -1,2 +1,2 @@
 # Vivify Healthcare "tech-community"
-Vivify Healthcare "Tech-Community" for publishing the updates for the technological advancements + R &amp;D
+Vivify Healthcare "Tech-Community" for publishing the updates on technological advancements + R & D
